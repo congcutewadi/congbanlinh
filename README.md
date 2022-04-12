@@ -1,1 +1,1 @@
-Chia se file cai dit me may
+Mang 1 nguoi dung thoi dit con me chung may
